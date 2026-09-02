@@ -6,7 +6,9 @@
 
 
 
-* 
+* strogonoff
+* macarrão
+* bolo de limão
 
 
 
@@ -22,5 +24,5 @@
 
 
 
-* &#x20;\_\_\_\_\_\_\_
+Lasanha
 
