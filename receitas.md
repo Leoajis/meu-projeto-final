@@ -16,13 +16,15 @@
 
 
 
-* 
+* Arroz japonês
+* Curry
+* Bolo de chocolate
 
 
 
 \## O prato principal (so cabe um!)
 
 
-
 Lasanha
+
 
