@@ -14,7 +14,9 @@
 
 
 
-* 
+* Arroz japonês
+* Curry
+* Bolo de chocolate
 
 
 
@@ -22,5 +24,5 @@
 
 
 
-* &#x20;\_\_\_\_\_\_\_
+Tempura Udon
 
